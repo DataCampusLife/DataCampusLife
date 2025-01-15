@@ -13,7 +13,7 @@ A thriving community for students and professionals in the data space, where we 
 📬 **Any questions, ideas or collaboration:**  
 Email: [datacampuslife@gmail.com](mailto:datacampuslife@gmail.com)  
 
-✨ **Follow Us on Social Media for More Content:**  
+✨ **Follow on Social Media for More Content:**  
 - [YouTube](https://www.youtube.com/@datacampuslife) - Subscribe for video tutorials and insights  
 - [Instagram](https://instagram.com/datacampuslife)  
 - [TikTok](https://tiktok.com/@datacampuslife)  
