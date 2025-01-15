@@ -19,8 +19,10 @@ Email: [datacampuslife@gmail.com](mailto:datacampuslife@gmail.com)
 - [Instagram](https://instagram.com/datacampuslife)  
 - [TikTok](https://tiktok.com/@datacampuslife)  
 - [Facebook](https://facebook.com/datacampuslife)  
+- [LinkedIn](https://www.linkedin.com/company/datacampuslife/)
 - [Threads](https://www.threads.net/@datacampuslife)  
 - [Twitter (X)](https://twitter.com/datacampuslife)  
 
 ---
+🌟 **Always happy to help**
 🌟 **Happy Learning!**
