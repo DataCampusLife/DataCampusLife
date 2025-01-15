@@ -1,6 +1,5 @@
 # 👩‍💻 Welcome to Data Campus Life's GitHub!  
 
-📊 **Who We Are:**  
 A thriving community for students and professionals in the data space, where we share projects, tutorials, resources, and ideas to fuel your data journey.  
 
 ## 📂 What You'll Find Here:  
