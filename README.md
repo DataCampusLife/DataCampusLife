@@ -9,15 +9,18 @@ A thriving community for students and professionals in the data space, where we 
 - 🌐 Useful Links & Resources  
 - 💾 Downloadable Files  
 
-🎓 Whether you're a beginner or a pro, there's something here for you. Let's learn, grow, and create together!  
+🎓 Whether you're a beginner or a pro, there's something here for you. 
 
-📬 **Contact Us:**  
+📬 **Any questions, ideas or collaboration:**  
 Email: [datacampuslife@gmail.com](mailto:datacampuslife@gmail.com)  
 
 ✨ **Follow Us on Social Media for More Content:**  
+- [YouTube](https://www.youtube.com/@datacampuslife) - Subscribe for video tutorials and insights  
 - [Instagram](https://instagram.com/datacampuslife)  
 - [TikTok](https://tiktok.com/@datacampuslife)  
 - [Facebook](https://facebook.com/datacampuslife)  
+- [Threads](https://www.threads.net/@datacampuslife)  
+- [Twitter (X)](https://twitter.com/datacampuslife)  
 
 ---
 🌟 **Happy Learning!**
